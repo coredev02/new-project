@@ -6,11 +6,9 @@ It is a pleasure to meet you.
 
 I am an experienced developer leading a small team, and I am currently looking for a reliable partner to help expand our business.
 
-I noticed that your account on this platform has not been actively used for some time. In my opinion, it has significant revenue-generating potential, and together we can unlock more opportunities.
-
 ## Proposal
 
-If you are not currently using the account, we would like to propose renting it from you.
+If you are not currently using the freelancer.com account, we would like to propose renting it from you.
 
 In return, we will share **20–25% of all revenue generated through your account**.
 
