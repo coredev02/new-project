@@ -10,9 +10,9 @@ I noticed that your account on this platform has not been actively used for some
 
 ## Proposal
 
-If you are not currently using the account, I would like to propose renting it from you.
+If you are not currently using the account, we would like to propose renting it from you.
 
-In return, I will share **20–25% of all revenue generated through your account**.
+In return, we will share **20–25% of all revenue generated through your account**.
 
 This can serve as an additional source of income for you with minimal involvement.
 
@@ -24,18 +24,18 @@ This can serve as an additional source of income for you with minimal involvemen
   * Phone consultations are not mandatory.
   * If you have strong consulting and communication skills, we can discuss increasing your revenue share.
 
-### My Responsibilities
+### Our Responsibilities
 
 * Project bidding and acquisition.
 * Client communication and management.
 * Project delivery and execution.
 * Transparent reporting and profit distribution.
 
-I value honesty and long-term cooperation. I currently work with partners in various regions and have helped them generate substantial additional income through similar arrangements.
+We value honesty and long-term cooperation. I currently work with partners in various regions and have helped them generate substantial additional income through similar arrangements.
 
-I look forward to the possibility of working together.
+We look forward to the possibility of working together.
 
-If you are interested, please feel free to contact me.
+If you are interested, please feel free to contact us.
 
 ## Contact Information
 
